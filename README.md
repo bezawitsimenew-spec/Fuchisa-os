@@ -1,1 +1,0 @@
-# Fuchisa-os
